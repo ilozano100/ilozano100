@@ -1,5 +1,5 @@
 Hi, I’m Israel Lozano (@ilozano100). I’m looking for Senior Architects (Principal level or above) 
-Development experience is a must, as well as architect/design. Idealy 15+ years of relevant experience
+Development experience is a must, as well as architect/design. Ideally 15+ years of relevant experience
 This is a great opportunity for senior technology candidates who meet the requirements and want to work in a great organization 
 If you want to do technical software work with some of the brightest minds, this opportunity may be for you
 Find me at https://www.linkedin.com/in/israel-lozano/
